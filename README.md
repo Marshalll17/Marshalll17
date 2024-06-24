@@ -21,6 +21,7 @@ I'm always open to new opportunities and collaborations. You can reach me at:
 
     Email: immks17@gmail.com 📧
     LinkedIn: https://www.linkedin.com/in/mohit-singh-534443228 💼
+    website:https://marshallblog.netlify.app/
    
 
 Let's connect and create something amazing together!
